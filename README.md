@@ -1,16 +1,17 @@
-## Hi there 👋
+H3LL0. W3LC0M3 T0 MY P4G3.
+D1D Y0U R34D MY D3SCR1PT10N 0R PR0N0UNS?
+WH4T3V3R DUD3. 
 
-<!--
-**venomjazz/venomjazz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+DNI: basic dni, 20+, -12
 
-Here are some ideas to get you started:
+THIN ICE/IWC: Doublefedora shippers (as long as you're not really weird it should be fine), 17+.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+W4RN1NG: I may apologize due to me being overly sensitive when I think I've talked too much. 
+
+there's no images because idk how to code yet sorry bro
+
+MY FANDOMS: ROBLOX in general.
+
+I accept ANY and ALL friend requests unless I've read your social and you're on the DNI list.
+
+UNF1N1SH3D...
