@@ -10,7 +10,14 @@ Ask before you friend me.
 
 I'm a multishipper, and as of August 4th, 2025, Taphsekkar is my favorite ship.
 
+I'm the biggest taphsekkar fan trust me.
+
 Freely c+h, but ships interact with extra caution as I don't want to make it weird. 
 
-< / 3
+![](https://i.pinimg.com/736x/c7/e2/4f/c7e24f884469ce504d4f895312d27f52.jpg)
 
+I literally AM cruel king. You cannot prove this wrong. 
+
+Formerly known as venomjazz on GitHub.
+
+SIGN MY ATABOOK PLEASE.
