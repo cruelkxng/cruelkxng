@@ -21,3 +21,5 @@ I literally AM cruel king. You cannot prove this wrong.
 Formerly known as venomjazz on GitHub.
 
 SIGN MY ATABOOK PLEASE.
+
+by the way, C+H freely!! I don't bite! Trust me, I'm a big fan of it and I try to C+H with everyone who allows it for at least a bit.
