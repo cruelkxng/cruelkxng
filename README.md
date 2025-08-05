@@ -1,11 +1,16 @@
-Hey. I'm Venom, Halt, or Fleshy. You can refer to me as any of these.
+I'm so dumb, I continue to edit this.
 
-I go by it/they.
+Anyways, hey! I'm Venomshank, but you can call me Venom, Fleshy, Angler, or Halt!
 
-I no longer accept friend requests unless we've hung out more than once.
+Please always interact with caution as I may get uncomfortable with something you say if you're not my friend. 
 
-I am deeply sorry if I unfriend you. It's because we barely talk. No hate against anyone.
+Ask before you friend me.
 
-Yes, I still do accept C+H.
+![](https://i.pinimg.com/736x/4f/ec/39/4fec39f5e27175a00f061b7c36e7542a.jpg)
 
-I'm not sure what else to put here.
+I'm a multishipper, and as of August 4th, 2025, Taphsekkar is my favorite ship.
+
+Freely c+h, but ships interact with extra caution as I don't want to make it weird. 
+
+< / 3
+
