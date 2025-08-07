@@ -1,6 +1,6 @@
 I'm so dumb, I continue to edit this.
 
-Anyways, hey! I'm Venomshank, but you can call me Venom, Fleshy, Angler, or Halt!
+Anyways, hey! I'm Cruel, but you can call me Venom, Fleshy, Angler, or Halt!
 
 Please always interact with caution as I may get uncomfortable with something you say if you're not my friend. 
 
